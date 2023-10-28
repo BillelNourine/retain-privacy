@@ -60,4 +60,3 @@ ARTICLE 7 : Droit applicable et juridiction compétente
 La législation algerienne s'applique au présent contrat. En cas d'absence de résolution amiable d'un litige né entre les parties, les tribunaux algerien seront seuls compétents pour en connaître.
 Pour toute question relative à l’application des présentes CGU, vous pouvez joindre l’éditeur aux coordonnées inscrites à l’ARTICLE 1.
 
-Email : retain1marketing@gmail.com
